@@ -6,5 +6,5 @@
 ![1](https://github.com/Arzunur/City-Runaway-Hyper-Casual-Game/assets/104225657/2fe869bb-9362-49be-836e-7c28beac756a)
 
 ![5](https://github.com/Arzunur/City-Runaway-Hyper-Casual-Game/assets/104225657/b3c54e78-c87f-4896-b174-1a3b60b10396)
-![6](https://github.com/Arzunur/City-Runaway-Hyper-Casual-Game/assets/104225657/65129c5a-ee4c-41c4-80a0-ff4b894de44b) 
+![6](https://github.com/Arzunur/City-Runaway-Hyper-Casual-Game/assets/104225657/1bfe86e4-b76f-4e14-ace9-9722f109e345)
 ![8](https://github.com/Arzunur/City-Runaway-Hyper-Casual-Game/assets/104225657/55a7e536-7d5a-477b-a1b6-2cdf418f94b2)
